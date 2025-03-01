@@ -1,5 +1,7 @@
 ### Welcome to our Profile
 
+## WE ARE NO LONGER IN BUSINESS
+
 We're a forward-thinking technical support and answering solution provider in based in Canada.
 
 How can we help your business today? Find out at [Our Website](https://helpliaison.com)!
